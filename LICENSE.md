@@ -1,4 +1,4 @@
-#  
+#  swing obby for brainrots custom Script is the best swing obby for brainrots Script, featuring custom skins and anti-ban. Safe and powerful for all
 
 
 
